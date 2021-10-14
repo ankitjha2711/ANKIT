@@ -1,1 +1,1 @@
-![](https://www.dreamstime.com/royalty-free-stock-images-disney-icon-mickey-mouse-image19614069)
+![](https://thumbs.dreamstime.com/b/disney-icon-mickey-mouse-19614069.jpg)
